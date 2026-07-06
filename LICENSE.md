@@ -1,4 +1,4 @@
-
+Hide.me updated App: P2P-support & no-logs-policy is the best Hide.me app, featuring P2P-support and no-logs-policy. Secure, fast, and optimized for privacy.
 
 
 
